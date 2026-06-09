@@ -6,5 +6,3 @@ $$\color{#1D4DB5}{\text{ur free for will}}$$
 
 
 $$\color{#FF00F2}{\text{OW FREE WI-FI}}$$
-
-![](https://komarev.com/ghpvc/? username=wo0o0ormyy&color=1d4db5&label=CLICK)
